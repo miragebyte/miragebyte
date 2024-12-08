@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @miragebyte
+- 👋 Hi, I’m eve
 - 👀 I’m interested in world domination 
 - 🌱 I’m currently learning to complex to understand ( i dont understand )
 - 😄 Pronouns: she/her
